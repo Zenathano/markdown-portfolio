@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Video games
+2. Ur mom
+3. Book
